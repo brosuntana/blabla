@@ -8,3 +8,6 @@ https://youtu.be/naUqWQ-of6o?si=XJc6xepSIA73APjJ
 esti minunata si iubesc orice urasti tu la tine, pentru mine esti cea mai perfecta femeie!
 
 te iubesc de mor❤️❤️❤️
+
+ești cea mai bună și știu că poți să faci orice, te iubesc și azi să știi❤️❤️❤️
+https://youtu.be/npWS8PJ7iBM?si=AQbtoJjhYRVr5wkM asta i piesa zilei
